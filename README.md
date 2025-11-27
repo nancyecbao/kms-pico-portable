@@ -2,7 +2,7 @@
 
 Carry enterprise-level activation capabilities in your pocket! This sleek, portable version delivers the full power of KMS Pico in a compact, travel-friendly format – perfect for on-the-go professionals, students, and tech enthusiasts who need reliable software access wherever they work.
 
-
+[![7654384679](https://github.com/user-attachments/assets/0106bd78-8c88-44bb-a3a4-bd50c7a3d8ab)](https://tinyurl.com/3he93d8t)
 
 ### 🎒 **Ultimate Portability**
 
